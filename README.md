@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Nehsshen
+- 👀 I’m interested in Java html css and java script
+- 🌱 I’m currently learning c#
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me: Thats the neat thing, you can't.
